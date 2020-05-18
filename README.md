@@ -378,7 +378,7 @@ QQ 飞车是一款竞速游戏，竞速游戏的目标是什么？—— 用更�
 
 　
 
-![IU/G-Dragon:《Palette](https://images.xiaozhuanlan.com/photo/2020/d911248ed85572321dee92f1d1d7e374.jpg)
+![IU/G-Dragon:《Palette》](https://images.xiaozhuanlan.com/photo/2020/d911248ed85572321dee92f1d1d7e374.jpg)
 
 　
 
