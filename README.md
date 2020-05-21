@@ -1,7 +1,9 @@
 ![](https://images.xiaozhuanlan.com/photo/2020/56bb43c95c3a647d73e2028dc9d6247e.png)
 
-# 致 软件开发工作者：免疫网络暴力和 职场 PUA 的终极认知补丁
-
+# 致 软件开发工作者：免疫 网络暴力 和 职场打压 的 终极认知补丁
+　
+《免疫补丁》读者加微信付费进群：myatejx
+　
 ## 前言
 
 很高兴见到你！
@@ -403,3 +405,6 @@ QQ 飞车是一款竞速游戏，竞速游戏的目标是什么？—— 用更�
  　
 ![](https://images.xiaozhuanlan.com/photo/2020/7b16f92a4f818cf2d77aacfb3ed44cbb.jpg)
 　
+- - - - - - - - - 
+
+©️2020 KunMinX
