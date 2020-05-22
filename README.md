@@ -404,6 +404,8 @@ QQ 飞车是一款竞速游戏，竞速游戏的目标是什么？—— 用更�
 　
  　　
 
-©️2020 KunMinX 
+本文提供免费阅读，以 [CC 署名-非商业性使用-禁止演绎 4.0 国际协议](https://creativecommons.org/licenses/by-nc-nd/4.0/deed.zh) 发行。
 
-本文由作者 KunMinX 独立原创，作者 KunMinX 享有著作权
+Copyright © 2020 KunMinX
+
+![](https://i.loli.net/2020/05/22/sIpuy6YHth7ESGR.png)
